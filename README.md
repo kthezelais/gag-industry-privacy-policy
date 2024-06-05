@@ -1,0 +1,1 @@
+# gag-industry-privacy-policy
